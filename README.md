@@ -1,3 +1,1 @@
-# KOOOONTOOLLLLLL
-
-# LU EKOOOOOO
+assalamualaikum akhi
